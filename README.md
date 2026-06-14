@@ -15,4 +15,4 @@ Contact Info:
 •Git Hub : https://github.com/Kosmaragd
 
 Showcases and interesting stuff in:
-•youtube : https://www.youtube.com/@muradinnnn](https://www.youtube.com/channel/UCV7fQZm5-iuJelaiftaF9nw
+•youtube : https://www.youtube.com/channel/UCV7fQZm5-iuJelaiftaF9nw
